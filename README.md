@@ -8,7 +8,7 @@ For this project, I'm the writer and will also be in charge of anything related 
 
 ### About Me
 
-I have always been interested in programming and this is why I have chose to study Computer Science in BIT. Unfortunately, I just started learning coding and programming last semester and I do not have a very good foundation for them. Despite not being very strong in programming, I'm striving to learn more about it in this semester and truly hope to improve my programming skills. 
+I have always been interested in programming and this is why I have chosen to study Computer Science in BIT. Unfortunately, I just started learning coding and programming last semester and I do not have a very good foundation for them. Despite not being very strong in programming, I'm striving to learn more about it in this semester and truly hope to improve my programming skills. 
 
 Besides programming, I have always been an animal lover. I'm very interested in reptiles such as snakes, leopard geckos and many different kinds of lizards. Playing and handling friendly snakes such as corn snakes are definitely not as scary as it seems. My favourite snake is the ball python because of its shy and friendly personality. During my summer break, I worked in a reptile store and really enjoyed every second of it there. I have learnt so much more about reptiles and other exotic animals and was lucky enough to have the chance to feed them all. 
 
